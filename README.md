@@ -6,6 +6,6 @@ Training and example repository for new members to become familiar with Github a
 
 Put a little bit about yourself! Note, this is described in the oboarding task for new members--you will get a detailed description on how to make changes to the repository there.
 
-### Thomas Kost -- Electronics Director
+### Tommy Kost -- Electronics Director
 
 Get off the cross, we need the wood.
