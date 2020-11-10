@@ -13,3 +13,7 @@ Get off the cross, we need the wood.
 ### Tyler McCown -- Controls Grandpappy
 
 You better settle down over there or I'm gonna come talk to you.
+
+### Gary Wang -- Noobie
+
+Mech E from San Diego. Uhhhh not sure what to write here. Hi!
