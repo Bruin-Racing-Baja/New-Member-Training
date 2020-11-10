@@ -13,3 +13,6 @@ Get off the cross, we need the wood.
 ### Tyler McCown -- Controls Grandpappy
 
 You better settle down over there or I'm gonna come talk to you.
+
+### Conway Xu -- Padawan
+Math of Comp from Massachusetts. Pecan Pie is objectively the best pie.
