@@ -14,6 +14,10 @@ Get off the cross, we need the wood.
 
 You better settle down over there or I'm gonna come talk to you.
 
+### Conway Xu -- Padawan
+
+Math of Comp from Massachusetts. Pecan Pie is objectively the best pie.
+
 ### Gary Wang -- Noobie
 
 Mech E from San Diego. Uhhhh not sure what to write here. Hi!
