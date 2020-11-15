@@ -21,3 +21,7 @@ Math of Comp from Massachusetts. Pecan Pie is objectively the best pie.
 ### Gary Wang -- Noobie
 
 Mech E from San Diego. Uhhhh not sure what to write here. Hi!
+
+### Akhil Manthina -- Recruit
+
+CSE from SF Bay. Pecan Pie is B tier at best.
