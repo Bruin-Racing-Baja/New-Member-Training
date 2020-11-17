@@ -25,3 +25,9 @@ Mech E from San Diego. Uhhhh not sure what to write here. Hi!
 ### Akhil Manthina -- Recruit
 
 CSE from SF Bay. Pecan Pie is B tier at best.
+
+### Karen Su -- Clueless
+
+MechE major from Los Angeles. I like dogs. 
+
+
