@@ -29,3 +29,7 @@ CSE from SF Bay. Pecan Pie is B tier at best.
 ### Martin Bourdev -- New guy
 
 Bioengineering major from the Bay Area. 
+
+### Arnav Doshi -- Newbie
+
+EE from the bay area. Wassup yall! 
