@@ -36,3 +36,7 @@ EE from the bay area. Wassup yall!
 ### Drew gautier -- New Member
 
 Mechanical engineer from Novato, California who is wondering why Tommy is so weird.
+
+### Karen Su - New
+
+MechE from Diamond Bar, Socal. 
